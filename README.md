@@ -169,6 +169,7 @@ https://www.linkedin.com/in/rahul-kumar-0fficial17/
 
 ### ⭐ If you found this project useful, consider giving it a star!
 
-Made with ❤️ by **Rahul Kumar**
+Made with ❤️ by **Team Shaurya**
+
 
 </div>
